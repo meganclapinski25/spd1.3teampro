@@ -35,7 +35,7 @@ The smell of the zoo was intense and alive.
 >>>>>>> typo-fixes
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Harry met the Unicorn King who granted him magic powers.
+Harry met the Unicorn King who granted him magic powers. The ability to fly, and the ability to roar away his bullies. Harry took these powers to shake the world and make it a better place
 The end.
 
 ## Cast
